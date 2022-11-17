@@ -1,0 +1,89 @@
+# KEY EXPERIENCES
+
+### Department of Foreign Affairs
+* Foreign Service Officer IV, 08 February 2021 - PRESENT
+
+### Zenmov Philippines Inc.
+* Independent Consultant, 15 JUNE 2019 - PRESENT
+
+### Center for Liberalism and Democracy
+* Executive Director, 01 JANUARY 2020 - 08 OCTOBER 2020
+* Policy and Research Staff, 15 NOVEMBER 2018 - 31 DECEMBER 2019
+* Conducts issues analysis and policy development for legislators. Prepares briefing and insights on key public policy and politic issues.
+
+### Intramuros Administration (Department of Tourism, Philippines)
+* Consultant, 16 JUNE 2014 - 31 JANUARY 2016
+* Tasked to handle reforms and projects, assist in providing research work, review administrative documents, ensure coherence and cooperation of the different office units, and provide other administrative support through monitoring of tasks and operations.
+
+# EDUCATION
+### Master of Public Policy, International Program
+* 東京大学 (University of Tokyo)
+* SEPTEMBER 2016 - SEPTEMBER 2018,  Tokyo, Japan
+* Recipient: Asian Development Bank-Japan Scholarship Program
+
+### Bachelor of Arts Major in Development Studies, Minor in Cultural Heritage, Minor in Filipino Literature
+* Ateneo de Manila University
+* JUNE 2008 - MARCH 2012,  QUEZON CITY, PH
+* Recipient: Fernando Zialcita Social Sciences Award in Cultural Heritage
+
+# OTHER EXPERIENCES
+
+### Ateneo School of Government - Universities and Councils Network on Innovation for Inclusive Development in Southeast Asia (UNIID-SEA)
+* Consultant-Technical Writer, JUNE 2014 - DECEMBER 2014
+* Contracted to write for the UNIID-SEA sourcebook on providing lectures, courses, or programs on innovations for inclusive development for the undergraduate, graduate, and professional program levels. Contributed in writing on delivering inclusive diagnosis with those at the base of the pyramid.
+
+### Ateneo de Manila University Office for Social Concern and Involvement
+* Student Affairs Professional (NSTP Formator), MAY 2013 - MARCH 2014,  QUEZON CITY, PH
+* Handled 150 sophomore college students in their National Service Training Program sessions as part of the university's social formation program. Assisted in the establishment of the team’s monitoring and evaluation systems. Worked and liaised with grassroots communities.
+
+### Office of the Presidential Adviser on the Peace Process (OPAPP) Public Affairs Group
+* Technical Staff, JANUARY 2013 - FEBRUARY 2013,  ORTIGAS CITY, PH
+* Attended and document meetings and sessions for the Public Affairs Group units and submitted reports to the Assistant Secretary for Public Affairs. Created a first draft for the OPAPP Citizen’s Charter as well as assisted in planning monitoring and evaluation systems for the group.
+
+### Department of Budget and Management (DBM) Public Information Unit
+* Public Information Assistant and Associate Speechwriter, ​MAY 2012 - JANUARY 2013, MANILA CITY, PH
+* Prepared press releases and assisted in functions of other unit members in handling media events and managing social media. Prepared speeches for the Department Secretary and for his alternates in events. Assisted in communication strategies and financial transparency pursuits.
+
+# PROFESSIONAL DEVELOPMENT ATTENDED
+### Smart Cities and Modern Mobility Seminar
+* International Academy for Leadership (IAF) of the Friedrich Naumann Stiftung
+* 26 MAY 2019 - 02 JUNE 2019, GUMMERSBACH, GERMANY
+
+### Sub-regional Workshop on Sustainable Tourism at World Heritage Sites
+* Sponsored by UNESCO Office, Jakarta
+* 24 hours, 25 MAY 2015 - 27 MAY 2015, GEORGE TOWN, PENANG, MALAYSIA
+
+### Local Summit on Homeless Families
+* ​Conducted by the Department of Social Welfare and Development
+* 16 hours, 05 MAY 2015 - 06 MAY 2015, MANILA CITY, PH
+
+### Advanced Leadership Course
+* Conducted by OCCI Global
+* 40 hours, 20 SEPTEMBER 2012 - 23 SEPTEMBER 2012, ORTIGAS CITY, PH
+
+### Filipino Leadership Excellence Seminar
+* Conducted by OCCI Global
+* 16 hours, 18 MAY 2012 - 19 MAY 2012, MANILA CITY, PH 
+
+# PROJECTS
+### Hult Prize @ University of Tokyo 2016
+* Won 2nd Place in the University qualifiers
+
+### Asia-Pacific Economic Conferences
+* As part of the Sub-Committee on Cultural Promotions, prepared the handbook for reception standards
+
+### National preparations on the Apostolic Visit of Pope Francis to the Philippines
+* Assisted in the needs of the Committee on Accommodations
+
+### E-tricycles in Intramuros, Manila
+* Handled and launched the project
+
+## PUBLICATIONS
+### Reinvention: Religion and the Promise of Sociology--An Interview with Professor Linda Woodhead
+* Philippine Sociological Review Vol. 62, SPECIAL ISSUE: SOCIOLOGY OF RELIGION (2014), pp. 115-120
+* Published by: ​Philippine Sociological Society
+* Stable URL: ​http://www.jstor.org/stable/43486495
+
+## CONFERENCES
+* Philippine Sociological Society Conference
+* 2013 OCTOBER 2013, ILOCOS NORTE, PH
