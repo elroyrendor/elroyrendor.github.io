@@ -1,3 +1,4 @@
-# Elroy Rendor as PF Board Member
+# Elroy Rendor as Provident Fund Board Member
 
-![campaign1](/elroyrendor.github.io/assets/images/prf2023/)
+![campaign1](/assets/images/prf2023/PRF2023_01.gif)
+![campaign2](/assets/images/prf2023/PRF2023_02.gif)
