@@ -4,27 +4,6 @@ Original highlight.js style (c) Ivan Sagalaev <maniac@softwaremaniacs.org>
 
 */
 
-@import url('https://fonts.googleapis.com/css?family=Lexend');
-body {
-  font-family: 'Lexend', sans-serif;
-  color: rgba(0, 0, 0, 0.8);
-  font-weight: 300;
-  line-height: 1.58;
-  letter-spacing: -.003em;
-  font-size: 20px;
-  padding: 70px;
-}
-h1 {
-  font-family: 'Lexend', sans-serif;
-  font-weight: 700;
-  font-style: normal;
-  font-size: 38px;
-  line-height: 1.15;
-  letter-spacing: -.02em;
-  color: rgba(0, 0, 0, 0.8);
-  -webkit-font-smoothing: antialiased;
-}
-
 .hljs {
   display: block;
   overflow-x: auto;
