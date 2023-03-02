@@ -1,6 +1,6 @@
 # Preserving our intangible heritage is crucial in who we are as Filipinos
 
-In our cadetship course this week, we were tasked to write a speech on the topic "Preservation of the Intagible Heritage of the Philippines." I would like to share the short output I prepared.
+In our cadetship course this week, we were tasked to write a speech on the topic "Preservation of the Intangible Heritage of the Philippines." I would like to share the short output I prepared.
 
 ---
 
